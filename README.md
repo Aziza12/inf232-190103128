@@ -4,4 +4,4 @@ Some info about me
 Aziza Zhussipkaliyeva 
 
 ---
-i like
+i like almost
