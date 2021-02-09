@@ -4,4 +4,4 @@ Some info about me
 Aziza Zhussipkaliyeva 
 
 ---
-i like almost all kinds of
+i like almost all kinds of music
